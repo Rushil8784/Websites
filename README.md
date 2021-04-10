@@ -8,4 +8,4 @@ https://preview.webflow.com/preview/rushils-business-starter-36d19e?utm_medium=p
 
 
 Hope you will take our request into your kind consideration and give us a chance to grow our knowledge.
-Tnahk You.
+Thank You.
